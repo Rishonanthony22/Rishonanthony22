@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rishonanthony22
-- 👀 I’m interested in pack making
-- 🌱 I’m currently learning how to be a god at bedwars
+- 👀 I’m interested in acking,breaking in and assaulting
+- 🌱 I’m currently learning css and java
 - 💞️ I’m looking to collaborate on youtube videos
 - 📫 How to reach me knackpack2020@gmail.com
 
