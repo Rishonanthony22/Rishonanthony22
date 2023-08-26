@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rishonanthony22
+- 👋 Hi, I’m Rishon Anthony (15)
 - 👀 I’m interested in hacking,breaking in and assaulting
 - 🌱 I’m currently learning css and java
 - 💞️ I’m looking to collaborate on youtube videos
